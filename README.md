@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on MY VILLAN PLAN
 - 📫 How to reach me IN THE COMPUTER
 - 😄 Pronouns: BAT/MAN
-- ⚡ Fun fact: i have ILLNESS
+- ⚡ Fun fact: i have AIDS
 - 
 
 <!---
